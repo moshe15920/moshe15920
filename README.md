@@ -25,7 +25,7 @@ I don’t just write code—I **engineer experiences**. Every pixel, every line,
 
 ## 🤝 Let’s Build Something Legendary
 
-📧 **Email**: moshegindi13@gmail.com <br/>
+📧 **Email**: gindimoshe367@gmail.com <br/>
 🌍 **Based in Israel** | **Open to Global Collaboration** <br/>
 
 🚀 Code isn’t just logic—it’s an art form. Let’s create something extraordinary.
